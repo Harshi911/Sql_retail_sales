@@ -203,7 +203,9 @@ This project is part of my portfolio, showcasing the SQL skills essential for da
 Stay Updated and Join the Community
 
 LinkedIn: https://www.linkedin.com/in/harshitha-mp-13509325a/
+
 Email : Harshithamp200@gmail.com
+
 
 Thank you for your support, and I look forward to connecting with you!
 
